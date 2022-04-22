@@ -1,5 +1,5 @@
 ---
-title: "Caroline's Mini Bookdown"
+title: "A Very Very Brief Book about Nothing"
 author: "Caroline C."
 site: bookdown::bookdown_site
 documentclass: book
@@ -8,4 +8,4 @@ classoption: openany
 
 # Create your open textbook
 
-Hello!!
+I exist in continuous creative response to whatever is present.
