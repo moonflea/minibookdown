@@ -16,8 +16,8 @@ Countless alternatives of each of our fates exist simultaneously in stasis.
 
 When energy passes through the human body, it is modified by that person's thoughts.
 
-Wheneveer you think about something, be it positive or negative, you are radiating thought energy into the alternatives space. This has the effect of introducing corresponding changes into your life.
+Whenever you think about something, be it positive or negative, you are radiating thought energy into the alternatives space. This has the effect of introducing corresponding changes into your life.
 
 The infinity of worlds within worlds exists simultanously.
 
-In Transurfing, wew can choose our happiness; we do not have to fight to get it. Whatever we *order*, our choice is granted unconditionally. 
+In Transurfing, we can choose our happiness; we do not have to fight to get it. Whatever we *order*, our choice is granted unconditionally. 
