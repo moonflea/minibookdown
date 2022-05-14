@@ -14,7 +14,7 @@ The list of strings the pendulum uses to control its puppets is endless: justice
 
 The harder you try to avoid something, the more likely it is that you will encounter it. Just thinking negative thoughts and fertilizing them with emotion is enough to shift you onto undesired life lines. 
 
-The only way to eliminate unwanted things from your life is to break free from the influence of the pendulums that you have glommed on to. From then on, you must avoid responding to it and avoid getting pulled into its sway. Basically, just do your best to think about something else.
+The only way to eliminate unwanted things from your life is to break free from the influence of the pendulums that you have glommed on to. From then on, you must avoid responding to destructive pendulums and avoid getting pulled into their sway. Basically, just do your best to think about something else.
 
 Everything you see and experience should be accepted as if it were were all paintings on display, regardless of whether or not you like them. Recognize that every pendulum has a right to exist, and that you have the right to leave every pendulum alone (and therefore remain free of its influence). Any opposition to the pendulum supplies it with energy. *To eliminate something from you life, simply ignore it.* 
 
@@ -28,8 +28,8 @@ When a pendulum comes to rest, the energy comes to you! You become stronger. The
 
 The secret of genius lies in remaining free from the influence of pendulums. The thought energy of most people is held at certain frequencies by pendulums. But the thought energy of a genius is free to attune itself to frequencies of her own choosing and she can therefore move into unexplored areas of the information field.
 
-To avoid getting caught in a pendulum's snare, keep your problems in perspective while remaining aware of the pendulum's intent to trick you into jumping onto its swing. Act as you normally would but remain observant. Stay out of the game. Don't be emotionally attached to any outcomes. Even if your initial reaction is fear, confusion, resentment, etc., it is important to change that reaction as quickly as possible. Transform it into its exact opposite. 
+To avoid getting caught in a pendulum's snare, keep your problems in perspective while remaining aware of the pendulum's intent to trick you into jumping onto its swing. Act as you normally would but remain observant. Stay out of the game. Don't be emotionally attached to any outcomes. Even if your initial reaction is fear, confusion, resentment, etc., it is important to change that reaction as quickly as possible. Transform your negative reaction into its exact opposite. 
 
-Your subconsious is directly linked to the information field where all solutions already exist. Relax. Let go. Quiet the chatter of the mind and contemplate the nature of emptiness. This exercise will develop your ability to obtain knowledge through your intuition. Practice it until it becomes a habit.
+Your subconscious is directly linked to the information field where all solutions already exist. Relax. Let go. Quiet the chatter of the mind and contemplate the nature of emptiness. This exercise will develop your ability to obtain knowledge through your intuition. Practice it until it becomes a habit.
 
 Once you learn to avoid destructive pendulums, you are free to attune yourself to pendulums of your choosing.
