@@ -1,6 +1,6 @@
-Pendulums do not care about any particular individual. They only have the goal of receiving energy from their adherents. But there are energetic structures that do not require your energy. One such structure is the **wave of fortune**, a set of cirumstances that are favorable to you personally.
+Pendulums do not care about any particular individual. They only have the goal of receiving energy from their followers. But there are energetic structures that do not require your energy. One such structure is the **wave of fortune**. The wave of fortune is made up of a set of cirumstances that are intended to be favorable to you personally.
 
-The wave of fortune is composed of a set of life lines that are personally auspicious for you.
+In other words, the wave of fortune is composed of a set of life lines that are personally auspicious for you.
 
 The **alternatives space** contains *everything*, including life lines where events of a similar nature are accumulated, and their nature can be a set of fortuitous circumstances that await you.
 
