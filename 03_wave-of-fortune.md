@@ -12,9 +12,20 @@ Each one of us can choose happiness and success for ourselves and yet, at the sa
 
 But how?
 
+Be different. When your mind is unoccupied, make sure that you train yourself to think positive thoughts. Think about what you want to achieve. Think **only good thoughts** about what you want to achieve and you will achieve it!
+
 Most people fill their minds with uncontrolled negative thoughts. Most people are concerned with what they fear. This makes them prey for destructive pendulums because they radiate energy at the same frequency as the destructive pendulums. 
 
-Be different. When your mind is unoccupied, make sure that you train yourself to think positive thoughts. Think about what you want to achieve. And you will achieve it!
+Step by step, let's change for the better!
 
-First of all, accept your current situation and let go of feeling any dissatisfaction and resentment. Look for things you like. Be grateful for those things. 
+First of all, accept your current situation and let go of feeling any dissatisfaction and resentment. Look for things you like. Be grateful for those things. Every single thing in your environment deserves your gratitude and appreciation, even if you intend to get rid of it. When you feel appreciation, you transmit positive energy into the environment. You will find yourself in other spaces where that energy finds you again.
+
+Secondly, start thinking about what you want to have and experience. Think the thoughts that you would have if you were living the life you envision. **Our thoughts always come back to us like a boomerang**.
+
+You have to do two things: 
+1) make sure you aren't taking IN negative energy, and 
+2) make sure you aren't putting OUT negative energy.
+
+(Caroline's thoughts: It's like the Wiccan Rule of 3 -- what you put out will return to you 3 times stronger)
+
 
