@@ -1,3 +1,4 @@
+# Pendulums
 When a group of people think in the same way, an energetic structure appears. The energetic structure is an **energy pendulum**. The group's thought energy becomes identical. The parameters of what they think, that is, how much they are capable of pushing the boundaries of what they think, is defined by the pendulums. The energy unites into a single current; the *energy pendulum* eventually begins to live its own life, and the group that created it is now subjugated by the pendulum's laws.
 
 The structure is referred to as a pendulum because when more people attune to the thought energy that corresponds to the structure, the more powerfully the energy sways in a concentrated motion, like a pendulum gaining momentum.
