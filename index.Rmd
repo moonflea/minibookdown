@@ -8,4 +8,4 @@ classoption: openany
 
 # Transurfing - Notes, Quotes, and Reflections
 
-I'm writing this mini bookdown to help myself understand the ins and outs of [*Transurfing*](https://www.amazon.com/Reality-transurfing-Steps-Vadim-Zeland/dp/1532814658) and [*Transurfing in 78 Days*](https://www.amazon.com/Transurfing-78-Days-Practical-Creating/dp/5957334715/ref=pd_lpo_1?pd_rd_i=5957334715&psc=1) by [Vadim Zeland](https://www.amazon.com/Vadim-Zeland/e/B00J0SESMY/ref=dp_byline_cont_pop_book_1). 
+I'm writing this mini bookdown to help myself understand [*Transurfing*](https://www.amazon.com/Reality-transurfing-Steps-Vadim-Zeland/dp/1532814658) and [*Transurfing in 78 Days*](https://www.amazon.com/Transurfing-78-Days-Practical-Creating/dp/5957334715/ref=pd_lpo_1?pd_rd_i=5957334715&psc=1) by [Vadim Zeland](https://www.amazon.com/Vadim-Zeland/e/B00J0SESMY/ref=dp_byline_cont_pop_book_1). 
