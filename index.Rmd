@@ -8,4 +8,16 @@ classoption: openany
 
 # Purpose of this Book 
 
-I'm writing this *bookdown* book to help myself understand [*Transurfing*](https://www.amazon.com/Reality-transurfing-Steps-Vadim-Zeland/dp/1532814658) and [*Transurfing in 78 Days*](https://www.amazon.com/Transurfing-78-Days-Practical-Creating/dp/5957334715/ref=pd_lpo_1?pd_rd_i=5957334715&psc=1) by [Vadim Zeland](https://www.amazon.com/Vadim-Zeland/e/B00J0SESMY/ref=dp_byline_cont_pop_book_1). 
+I'm writing this *bookdown* book to help myself understand [*Transurfing*](https://www.amazon.com/Reality-transurfing-Steps-Vadim-Zeland/dp/1532814658) and [*Transurfing in 78 Days*](https://www.amazon.com/Transurfing-78-Days-Practical-Creating/dp/5957334715/ref=pd_lpo_1?pd_rd_i=5957334715&psc=1) by [Vadim Zeland](https://www.amazon.com/Vadim-Zeland/e/B00J0SESMY/ref=dp_byline_cont_pop_book_1).
+
+I'm interested in any philosophies about how we create our own reality. 
+
+The term "transurfing," at first, struck me as pseudo-science-y or pop-culture-ish.
+
+[trans-](https://www.etymonline.com/word/trans-)
+
+word-forming element meaning "across, beyond, through, on the other side of, to go beyond," from Latin trans (prep.) "across, over, beyond," perhaps originally present participle of a verb *trare-, meaning "to cross," from PIE *tra-, variant of root *tere- (2) "cross over, pass through, overcome." 
+
+Transurfing speaks about energy in the form of waves and pendulums. Transurfing means *crossing over, passing through, and going beyond* these waves of energy -- simply put, when you transurf, you are surfing the waves of energy (that comprise reality).
+
+
